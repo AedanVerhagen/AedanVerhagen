@@ -8,7 +8,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://github.com/AedanVerhagen/AedanVerhagen/blob/main/1738325754847.jpg?raw=true"  />
 
 ###
 
